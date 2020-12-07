@@ -1,1 +1,0 @@
-# UTS-triantara-pingky
